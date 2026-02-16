@@ -26,7 +26,7 @@ HEATING & COMFORT:
 WATER SYSTEM:
 - 40-gallon onboard tank
 - Guzzle H2O filtration/purification system
-- 23Zero shower tent
+- 23Zero Peregrine vehicle shower enclosure
 - Dometic 6-gallon hot water heater (brand new 2022, propane + electric)
 
 POWER SYSTEM:

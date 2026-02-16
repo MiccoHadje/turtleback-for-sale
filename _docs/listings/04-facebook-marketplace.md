@@ -19,7 +19,7 @@
 - **270-degree awning** with built-in LED lighting — huge shade/rain coverage on three sides
 - **Diesel heater** (Webasto Air Top 2000 STC) ducted to tent — stay warm in any weather
 - **Off-grid power system:** Dual heated lithium batteries, 180W solar panel, 2000W inverter, full Victron charging
-- **Water system:** 40-gallon tank with built-in filtration/purification, hot water heater, shower tent
+- **Water system:** 40-gallon tank with built-in filtration/purification, hot water heater, 23Zero Peregrine shower enclosure
 - **Kitchen:** Composite module with workspace, National Luna dual-zone fridge/freezer on slide
 - **Suspension:** ICON off-road suspension — handles rough terrain with ease
 - **Tires:** BFGoodrich KO2 All-Terrain

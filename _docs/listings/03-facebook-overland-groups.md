@@ -17,7 +17,7 @@ Looking for a turnkey overland trailer that's ready for extended trips? This 202
 - Dual RELiON heated lithium batteries + full Victron charging ecosystem
 - National Luna NL60 dual-zone fridge/freezer on slide
 - Guzzle H2O built-in water filtration, 40-gallon tank
-- 23Zero shower tent + Dometic 6-gal hot water heater (brand new 2022)
+- 23Zero Peregrine shower enclosure + Dometic 6-gal hot water heater (brand new 2022)
 - Sunflare 180W solar panel
 - BFGoodrich KO2 All-Terrain tires
 

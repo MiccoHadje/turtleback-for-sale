@@ -13,7 +13,7 @@ Selling my 2021 Expedition T3, 2nd owner, under 25k miles. Full T3 package plus 
 - Dual RELiON heated lithium + full Victron charging
 - National Luna NL60 fridge/freezer on slide
 - Guzzle H2O filtration, 40-gal tank
-- 23Zero shower tent + Dometic 6-gal hot water heater (new 2022)
+- 23Zero Peregrine shower enclosure + Dometic 6-gal hot water heater (new 2022)
 - Exped MegaMat Duo mattress upgrade
 - Sunflare 180W solar
 

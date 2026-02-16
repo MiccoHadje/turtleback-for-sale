@@ -20,7 +20,7 @@ Includes:
 - Dual heated lithium batteries + 180W solar
 - National Luna fridge/freezer
 - 40-gal water tank + filtration + hot water heater
-- Shower tent
+- 23Zero Peregrine shower enclosure
 - BFG KO2 tires
 
 Camp-ready. Tows great. Always garaged.
