@@ -23,7 +23,7 @@ Looking for a turnkey overland trailer that's ready for extended trips? This 202
 
 **Condition:** 2nd owner, under 25k miles, excellent condition, always garaged.
 
-**Price:** $34,900 (new Expedition trailers start at $45,000+ before tent/awning/accessories)
+**Price:** $34,900 (new Expedition trailers start at $45,000+ before tent/awning/accessories — over $60k to build this equivalent rig today)
 
 **Delivery:** Included to 100 miles, $1/mile to 300.
 

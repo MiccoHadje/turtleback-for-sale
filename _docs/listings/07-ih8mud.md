@@ -63,7 +63,7 @@ FOR SALE: 2021 Turtleback Expedition T3 Overland Trailer
 
 **Other Notes:**
 - Hot water heater was replaced in 2022 (previous owner failed to winterize; current Dometic unit is brand new, zero issues)
-- New Turtleback Expedition trailers start at $45,000+ before tent, awning, or accessories. This is a $55k+ equivalent rig.
+- New Turtleback Expedition trailers start at $45,000+ before tent, awning, or accessories. This is a $60k+ equivalent rig.
 
 **Delivery:** Included within 100 miles. $1/mile up to 300 miles from Savannah/Brunswick.
 

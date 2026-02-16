@@ -26,7 +26,7 @@
 
 **Condition:** 2nd owner, under 25k miles, excellent condition, always garaged. Tows beautifully behind any mid-size or full-size truck/SUV.
 
-**What does a new one cost?** New Turtleback Expedition trailers start at $45,000+ before tent, awning, or accessories. This is a $55k+ equivalent rig at $34,900.
+**What does a new one cost?** New Turtleback Expedition trailers start at $45,000+ before tent, awning, or accessories. This is a $60k+ equivalent rig at $34,900.
 
 **Delivery:** Included within 100 miles of Savannah/Brunswick, GA. $1/mile up to 300 miles.
 

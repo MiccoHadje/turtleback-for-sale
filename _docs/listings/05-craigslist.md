@@ -44,7 +44,7 @@ CONDITION:
 Always garaged, no accidents, no leaks, tows beautifully. Ready for your next adventure.
 
 PRICE:
-$34,900 (new Expedition trailers start at $45,000+ before tent/awning/accessories)
+$34,900 (new Expedition trailers start at $45,000+ before tent/awning/accessories — over $60k to build this equivalent rig today)
 
 DELIVERY:
 Included within 100 miles. $1/mile up to 300 miles from Savannah/Brunswick, GA.

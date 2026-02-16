@@ -25,7 +25,7 @@ Includes:
 
 Camp-ready. Tows great. Always garaged.
 
-New trailers start at $45k+ before tent/awning. This is a $55k+ rig.
+New trailers start at $45k+ before tent/awning. This is a $60k+ rig.
 
 Delivery available.
 
