@@ -21,7 +21,7 @@ FOR SALE: 2021 Turtleback Expedition T3 Overland Trailer
 
 **Price:** $34,900
 
-2nd owner, under 25k miles, excellent condition. Always garaged, no accidents, no leaks. This is a fully-loaded T3 with the full factory package plus upgrades — a true 4-season, camp-ready rig. Tows beautifully behind any mid-size or full-size truck/SUV (I've towed it with a 4Runner and a Tacoma, no issues).
+2nd owner, under 25k miles, excellent condition. No accidents, no leaks, regularly maintained. This is a fully-loaded T3 with the full factory package plus upgrades — a true 4-season, camp-ready rig. Tows beautifully behind any mid-size or full-size truck/SUV (I've towed it with a 4Runner and a Tacoma, no issues).
 
 **Factory T3 Package:**
 - Max Coupler hitch with adjustable height
@@ -42,7 +42,7 @@ FOR SALE: 2021 Turtleback Expedition T3 Overland Trailer
 - 40-gallon onboard tank
 - Guzzle H2O built-in filtration/purification system
 - 23Zero Peregrine vehicle shower enclosure
-- Dometic 6-gallon hot water heater (brand new 2022, propane + electric, 10,000 BTU)
+- Dometic 6-gallon hot water heater (installed 2024, propane + electric, 10,000 BTU)
 
 **Power System (full Victron ecosystem):**
 - Dual RELiON heated lithium batteries
@@ -62,7 +62,7 @@ FOR SALE: 2021 Turtleback Expedition T3 Overland Trailer
 - Factory interior divider panel (between fridge compartment and systems area) has been removed for easier field access to water tank, plumbing, and electrical systems. Visible in photos.
 
 **Other Notes:**
-- Hot water heater was replaced in 2022 (previous owner failed to winterize; current Dometic unit is brand new, zero issues)
+- Hot water heater was replaced in 2024 (previous owner failed to winterize; current Dometic unit has zero issues)
 - New Turtleback Expedition trailers start at $45,000+ before tent, awning, or accessories. This is a $60k+ equivalent rig.
 
 **Delivery:** Included within 100 miles. $1/mile up to 300 miles from Savannah/Brunswick.

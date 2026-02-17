@@ -27,7 +27,7 @@ FOR SALE: 2021 Turtleback Expedition T3
 
 **Description:**
 
-2021 Turtleback Expedition T3, 2nd owner, under 25k miles, excellent condition. Fully-loaded with the T3 package plus upgrades that make it a true 4-season camp-ready rig. Always garaged, no accidents, no leaks.
+2021 Turtleback Expedition T3, 2nd owner, under 25k miles, excellent condition. Fully-loaded with the T3 package plus upgrades that make it a true 4-season camp-ready rig. No accidents, no leaks, regularly maintained.
 
 Factory T3 Package:
 - Max Coupler hitch with adjustable height
@@ -48,7 +48,7 @@ Water System:
 - 40-gallon onboard tank
 - Guzzle H2O built-in filtration/purification system
 - 23Zero Peregrine vehicle shower enclosure
-- Dometic 6-gallon hot water heater (brand new 2022, propane + electric, 10,000 BTU)
+- Dometic 6-gallon hot water heater (installed 2024, propane + electric, 10,000 BTU)
 
 Power System (full Victron ecosystem):
 - Dual RELiON heated lithium batteries
@@ -68,7 +68,7 @@ Tows beautifully, tracks straight, no issues.
 
 **Known Defects/Concerns:**
 - No mechanical or structural defects.
-- Hot water heater was replaced in 2022 (previous owner failed to winterize; current Dometic unit is brand new, zero issues).
+- Hot water heater was replaced in 2024 (previous owner failed to winterize; current Dometic unit has zero issues).
 - Factory interior divider panel (between fridge compartment and systems area) has been removed. This was intentional — it makes accessing the water tank, plumbing, and electrical systems far easier, especially in the field. Visible in photos.
 
 **Contact:** PM preferred. Or email turtlebackforsale@mahaffey.org / call (912) 434-7067.

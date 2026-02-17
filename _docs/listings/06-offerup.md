@@ -23,7 +23,7 @@ Includes:
 - 23Zero Peregrine shower enclosure
 - BFG KO2 tires
 
-Camp-ready. Tows great. Always garaged.
+Camp-ready. Tows great. Regularly maintained.
 
 New trailers start at $45k+ before tent/awning. This is a $60k+ rig.
 

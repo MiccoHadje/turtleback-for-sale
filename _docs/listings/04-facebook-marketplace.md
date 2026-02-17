@@ -24,7 +24,7 @@
 - **Suspension:** ICON off-road suspension — handles rough terrain with ease
 - **Tires:** BFGoodrich KO2 All-Terrain
 
-**Condition:** 2nd owner, under 25k miles, excellent condition, always garaged. Tows beautifully behind any mid-size or full-size truck/SUV.
+**Condition:** 2nd owner, under 25k miles, excellent condition, regularly maintained. Tows beautifully behind any mid-size or full-size truck/SUV.
 
 **What does a new one cost?** New Turtleback Expedition trailers start at $45,000+ before tent, awning, or accessories. This is a $60k+ equivalent rig at $34,900.
 

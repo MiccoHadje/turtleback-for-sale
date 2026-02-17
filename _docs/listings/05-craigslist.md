@@ -27,7 +27,7 @@ WATER SYSTEM:
 - 40-gallon onboard tank
 - Guzzle H2O filtration/purification system
 - 23Zero Peregrine vehicle shower enclosure
-- Dometic 6-gallon hot water heater (brand new 2022, propane + electric)
+- Dometic 6-gallon hot water heater (installed 2024, propane + electric)
 
 POWER SYSTEM:
 - Dual RELiON heated lithium batteries
@@ -41,7 +41,7 @@ TIRES:
 - BFGoodrich KO2 All-Terrain (excellent condition)
 
 CONDITION:
-Always garaged, no accidents, no leaks, tows beautifully. Ready for your next adventure.
+No accidents, no leaks, regularly maintained. Tows beautifully. Ready for your next adventure.
 
 PRICE:
 $34,900 (new Expedition trailers start at $45,000+ before tent/awning/accessories — over $60k to build this equivalent rig today)
